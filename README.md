@@ -5,8 +5,6 @@
 
 ![](https://64.media.tumblr.com/778e0dfe84d982a696c156c2b24aa38b/30a5bba12daef9d3-f3/s400x600/c8d430bac60441c99d0543ff5d92e9dd788a7a0b.gifv)
 
-lalala words go here.
-
-in progress
+lalala words go here. in progress
 
 ![](https://64.media.tumblr.com/202c30ae129e50067b41b5cfee08837a/dc12c1d321a37d92-19/s75x75_c1/41ac71cc37a2bd537f7127ffc1985a7d640c6a4e.gifv)
