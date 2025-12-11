@@ -7,4 +7,4 @@
 
 lalala words go here. in progress
 
-![](https://64.media.tumblr.com/52fb5c326438a8dc174e2291608196d5/d5841575587c19a2-15/s100x200/aecd731e85155fbe07ebf88e86b73a2564e3bfc3.gifv)
+![](https://64.media.tumblr.com/406f94b10d24512f3089a673ddeb8e90/a1fdc0e7dd854f0d-54/s75x75_c1/974561b4f4c111de2db05ebcf4fb988a67c8c0c6.gifv)
